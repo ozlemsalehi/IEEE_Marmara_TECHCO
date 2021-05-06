@@ -1,1 +1,1 @@
-"# IEEE_Marmara_TECHNO" 
+IEEE Marmara'n?n TECHNO(N!)'21 etkinli?inde kullan?lan materyalleri içermektedir.
