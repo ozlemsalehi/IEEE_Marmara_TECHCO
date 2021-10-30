@@ -1,1 +1,1 @@
-IEEE Marmara'n?n TECHNO(N!)'21 etkinli?inde kullan?lan materyalleri i�ermektedir.
+IEEE Marmara'nın TECHCO(N!)'21 etkinliğinde kullanılan materyalleri içermektedir.
